@@ -2,6 +2,7 @@
 2021.9.22. \
 charged \
 https://www.odt.co.nz/news/national/auckland-couple-who-flew-wanaka-charged
+> Willis and Rawnsley were expected to appear in the Papakura District Court on October 14.
 
 2021.9.13. \
 high rank, QC \
