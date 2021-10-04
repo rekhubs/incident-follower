@@ -1,3 +1,7 @@
+2021.10.4. \
+despite 29 new cases, akl is stepping down lockdown.. a ref for all other regions \
+https://thespinoff.co.nz/politics/04-10-2021/new-covid-roadmap-for-auckland-restrictions-to-be-eased-in-three-steps-all-you-need-to-know/
+
 2021.10.1. \
 https://www.stuff.co.nz/national/health/coronavirus/300420663/ashley-bloomfield-level-one-freedoms-a-thing-of-the-past
 
