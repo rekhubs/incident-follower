@@ -1,3 +1,7 @@
+
+2021.10.5. \
+https://www.nzherald.co.nz/nz/politics/covid-19-delta-outbreak-jacinda-ardern-releases-unclear-road-map-experts-say-community-transmission-new-normal/RCBWJB5YX4PLQAP3UK5M3L7DJA/
+
 2021.10.4. \
 despite 29 new cases, akl is stepping down lockdown.. a ref for all other regions \
 https://thespinoff.co.nz/politics/04-10-2021/new-covid-roadmap-for-auckland-restrictions-to-be-eased-in-three-steps-all-you-need-to-know/
