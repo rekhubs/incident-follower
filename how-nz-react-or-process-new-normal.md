@@ -1,4 +1,9 @@
 
+
+2021.10.22. \
+"traffic light" system on condition, no more lockdown \
+https://www.nzherald.co.nz/nz/covid-19-delta-outbreak-pm-jacinda-ardern-reveals-nzs-new-traffic-light-system-90-per-cent-vaccination-target/2GKTYBQ7K34VGFTA33YFXJZF5M/
+
 2021.10.5. \
 https://www.nzherald.co.nz/nz/politics/covid-19-delta-outbreak-jacinda-ardern-releases-unclear-road-map-experts-say-community-transmission-new-normal/RCBWJB5YX4PLQAP3UK5M3L7DJA/
 
