@@ -1,4 +1,7 @@
 
+2021.11.17. \
+traffic light effective late Nov, akl off free 15 Dec \
+https://www.rnz.co.nz/news/covid-19/455909/covid-19-traffic-lights-at-end-of-month-auckland-border-to-open-mid-december
 
 2021.10.22. \
 "traffic light" system on condition, no more lockdown \
