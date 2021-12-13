@@ -1,4 +1,8 @@
 
+2021.12.14. \
+akl goes orange (level 2 ish) 00:00 01 Jan 2022 \
+https://www.stuff.co.nz/auckland/127269315/covid19-government-gives-auckland-new-years-eve-parties-the-orange-light
+
 2021.11.17. \
 traffic light effective late Nov, akl off free 15 Dec \
 https://www.rnz.co.nz/news/covid-19/455909/covid-19-traffic-lights-at-end-of-month-auckland-border-to-open-mid-december
