@@ -1,4 +1,7 @@
 
+2022.1.21. \
+https://www.rnz.co.nz/news/political/459921/nzers-urged-to-prepare-for-potentially-thousands-of-daily-omicron-infections
+
 2021.12.14. \
 akl goes orange (level 2 ish) 00:00 01 Jan 2022 \
 https://www.stuff.co.nz/auckland/127269315/covid19-government-gives-auckland-new-years-eve-parties-the-orange-light
