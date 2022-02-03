@@ -1,4 +1,8 @@
 
+2022.2.3. \
+plan released to reopen border \
+https://www.rnz.co.nz/news/political/460789/pm-jacinda-ardern-reveals-decision-for-new-zealand-s-border-reopening-there-will-be-life-after-covid
+
 2022.1.21. \
 https://www.rnz.co.nz/news/political/459921/nzers-urged-to-prepare-for-potentially-thousands-of-daily-omicron-infections
 
