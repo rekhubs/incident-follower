@@ -1,4 +1,8 @@
 
+2022.2.21. \
+vaccine pass and mandate system to lift after peak, in March \
+https://www.stuff.co.nz/national/politics/300523020/covid19-nz-jacinda-ardern-says-mandates-will-wind-down-after-omicron-peak
+
 2022.2.3. \
 plan released to reopen border \
 https://www.rnz.co.nz/news/political/460789/pm-jacinda-ardern-reveals-decision-for-new-zealand-s-border-reopening-there-will-be-life-after-covid
