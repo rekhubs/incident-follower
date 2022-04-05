@@ -10,6 +10,16 @@ https://www.stuff.co.nz/national/politics/300523020/covid19-nz-jacinda-ardern-sa
 plan released to reopen border \
 https://www.rnz.co.nz/news/political/460789/pm-jacinda-ardern-reveals-decision-for-new-zealand-s-border-reopening-there-will-be-life-after-covid
 
+```
+The New Zealand border will reopen for international travel in five steps.
+
+Step 1 - From 11.59pm Sunday 27 February, Kiwis and other currently eligible travellers from Australia will be able to travel to New Zealand, and instead of going into MIQ, will be able to self-isolate.
+Step 2 - From 11.59pm on Sunday 13 March, there will be an expanded border exception for critical workers, and skilled workers earning at least 1.5 times the median wage, who will also be eligible to enter New Zealand, along with highly skilled workers' family members who may have been separated from their loved ones.
+Step 3 - Begins from 11.59pm Tuesday 12 April. Here the border extension will include a large international student cohort of up to 5000 students for entry ahead of semester 2 and temporary visa holders who still meet relevant visa requirements.
+Step 4 - Begins no later than July 2022. Includes Australians and all other visitors and business travellers who can normally enter New Zealand without a visa.
+Step 5 - Begins in October and includes all other visitors and students who require a visa to enter New Zealand, with normal visa processing resuming.
+```
+
 2022.1.21. \
 https://www.rnz.co.nz/news/political/459921/nzers-urged-to-prepare-for-potentially-thousands-of-daily-omicron-infections
 
