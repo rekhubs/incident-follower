@@ -1,3 +1,6 @@
+2022.4.5. \
+Unvaccinated return to hospitality, large events as passes, mandates ditched \
+https://www.newshub.co.nz/home/politics/2022/04/covid-19-unvaccinated-return-to-hospitality-large-events-as-passes-mandates-ditched.html
 
 2022.2.21. \
 vaccine pass and mandate system to lift after peak, in March \
