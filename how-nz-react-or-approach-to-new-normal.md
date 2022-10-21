@@ -1,3 +1,6 @@
+2022.9.12. \
+https://www.rnz.co.nz/news/national/474615/covid-19-traffic-light-system-vaccine-mandates-and-most-mask-requirements-to-end
+
 2022.4.5. \
 Unvaccinated return to hospitality, large events as passes, mandates ditched \
 https://www.newshub.co.nz/home/politics/2022/04/covid-19-unvaccinated-return-to-hospitality-large-events-as-passes-mandates-ditched.html
