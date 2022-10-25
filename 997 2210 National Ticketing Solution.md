@@ -1,5 +1,5 @@
 
-22.10.21. \
+2022.10.21. \
 https://www.newshub.co.nz/home/politics/2022/10/national-ticketing-solution-massive-change-coming-for-how-kiwis-pay-for-public-transport.html
 
 New Zealanders will be able to use contactless debit card payment and other services like Apple Pay to pay for public transport fares under a new National Ticketing Solution (NTS) announced on Friday.
